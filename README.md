@@ -1,6 +1,5 @@
-school
+うぇいいいいいいいいい
 ======
-
-school work(nlp-tutorial,100hon)
+fuckin ass hole
 
 My first repository in GitHub.
